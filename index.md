@@ -27,6 +27,7 @@
 🌏欢迎加入我的Telegram电报群：[https://t.me/vpnv2ray](https://t.me/vpnv2ray)  技术交流群
 
 🌍欢迎加入我的Telegram电报群：[https://t.me/tony_cn](https://t.me/tony_cn)  人个交流群
+WebTG(https://web.telegram.org) WinTG(https://web.telegram.org) MacTG(https://web.telegram.org) AndriodTG(https://web.telegram.org) iOSTG(https://itunes.apple.com/app/telegram-messenger/id686449807)
 
 ### 通过微信或PayPal赞赏支持Tony
 
