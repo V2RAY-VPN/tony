@@ -1,4 +1,4 @@
-## Welcome to Tony's Pages
+## Welcome to Tony's Pages (./image/Tony.jpeg) <img align="right" src="./image/Tony.jpeg"/>
 
 ### 通过微信或PayPal赞赏支持Tony
 🚗 注册VPS送100美金🎁 [http://bit.ly/regDigitalOcean](http://bit.ly/regDigitalOcean)
@@ -42,7 +42,7 @@
 
 ☎️如果你想联系我可以通过微信赞赏留言留下你的联系方式，或者用Telegram联系。📞
 
-如果你决定赞赏，Tony感谢你的💖善意️支持。![](./image/youtube-subscribe.png)
+(./image/Tony.jpeg)如果你决定赞赏，Tony感谢你的💖善意️支持。![](./image/youtube-subscribe.png)
 
 
 
