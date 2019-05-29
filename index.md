@@ -16,11 +16,11 @@
 ![赞赏码](https://raw.githubusercontent.com/V2RAY-VPN/tony/master/tony_weixin_paypal_donate.GIF)
 ### 如果您喜欢🧡我的视频，请您【点赞】 并【订阅】我的频道💙
 
-✅您的订阅就是我的动力^_^ [https://www.youtube.com/c/TonyCN](https://www.youtube.com/c/TonyCN) (https://raw.githubusercontent.com/V2RAY-VPN/tony/master/image/youtube-32.png)
+✅您的订阅就是我的动力^_^ [https://www.youtube.com/c/TonyCN](https://www.youtube.com/c/TonyCN) !(https://raw.githubusercontent.com/V2RAY-VPN/tony/master/image/youtube-32.png)
 
 🌎欢迎大家评论，转发，记得打开【订阅】按钮旁边的推送〖小铃铛〗，
 
-(https://raw.githubusercontent.com/V2RAY-VPN/tony/master/image/youtube-subscribe.png)发布新视频时，它会把最新的内容第一时间推送给你。
+!(https://raw.githubusercontent.com/V2RAY-VPN/tony/master/image/youtube-subscribe.png) 发布新视频时，它会把最新的内容第一时间推送给你。
 
 ## 你可以点下同的链接 加入Telegram群与大家交流:
 
@@ -36,7 +36,7 @@ WebTG(https://web.telegram.org) WinTG(https://web.telegram.org) MacTG(https://we
 [赞赏码](https://raw.githubusercontent.com/V2RAY-VPN/tony/master/tony_weixin_paypal_donate.GIF)
 ![赞赏码](https://raw.githubusercontent.com/V2RAY-VPN/tony/master/tony_weixin_paypal_donate.GIF)
 
-如果你决定赞赏，Tony感谢你的💖善意️支持。(https://raw.githubusercontent.com/V2RAY-VPN/tony/master/image/youtube-subscribe.png)
+如果你决定赞赏，Tony感谢你的💖善意️支持。!(https://raw.githubusercontent.com/V2RAY-VPN/tony/master/image/youtube-subscribe.png)
 
 
 
