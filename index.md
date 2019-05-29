@@ -7,7 +7,7 @@
 
 🚙 VPN永久免费套餐注册🚀 [http://bit.ly/ZOOGVPN](http://bit.ly/ZOOGVPN)
 
-觉得Tony的内容、视频对你有所帮助，希望支持Tony的频道。
+❤️觉得Tony的内容、视频对你有所帮助，希望支持Tony的频道。
 
 ❤️你可以通过下面的二维码扫码“微信赞赏码” “PayPal赞赏码”支持我。
 
@@ -36,13 +36,14 @@
 ### 通过微信或PayPal赞赏支持Tony
 
 💖觉得Tony的内容、视频对你有所帮助，希望支持Tony的频道。
+
 💖你可以通过下面的二维码扫码“微信赞赏码” “PayPal赞赏码”支持我。
 [放大赞赏码](./image/tony_weixin_paypal_donate.GIF)
 ![赞赏码](./image/tony_weixin_paypal_donate.GIF)
 
 ☎️如果你想联系我可以通过微信赞赏留言留下你的联系方式，或者用Telegram联系。📞
 
-![](./image/Tony.jpeg) 如果你赞赏我，Tony感谢你的💖善意️支持。![](./image/youtube-subscribe.png)
+如果你赞赏我，![](./image/Tony.jpeg) Tony感谢你的💖善意️支持。![](./image/youtube-subscribe.png)
 
 
 
