@@ -3,9 +3,9 @@
 ### 通过微信或PayPal赞赏支持Tony
 🚗 注册VPS送100美金 [http://bit.ly/regDigitalOcean](http://bit.ly/regDigitalOcean)
 
-🚕 免费注册VPN送流量 [http://bit.ly/Free-vpn](http://bit.ly/Free-vpn)
+🚕 免费注册VPN送流量✈️ [http://bit.ly/Free-vpn](http://bit.ly/Free-vpn)
 
-🚙 VPN永久免费套餐注册 [http://bit.ly/ZOOGVPN](http://bit.ly/ZOOGVPN)
+🚙 VPN永久免费套餐注册🚀 [http://bit.ly/ZOOGVPN](http://bit.ly/ZOOGVPN)
 
 觉得Tony的内容、视频对你有所帮助，希望支持Tony的频道。
 
@@ -28,7 +28,7 @@
 
 🌍欢迎加入我的Telegram电报群：[https://t.me/tony_cn](https://t.me/tony_cn)  人个交流群
 
-[WebTG](https://web.telegram.org) [WinTG](https://git.io/Telegram.exe) [MacTG](https://git.io/Telegram.zip) [AndriodTG](https://git.io/Telegram.apk) [iOSTG](https://itunes.apple.com/app/telegram-messenger/id686449807)
+✈️[WebTG](https://web.telegram.org)✈️ [WinTG](https://git.io/Telegram.exe) ✈️[MacTG](https://git.io/Telegram.zip) 🚀[AndriodTG](https://git.io/Telegram.apk) 🚀[iOSTG](https://itunes.apple.com/app/telegram-messenger/id686449807)
 
 ### 通过微信或PayPal赞赏支持Tony
 
