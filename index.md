@@ -1,4 +1,4 @@
-## Welcome to Tony's Pages (./image/Tony.jpeg) <img align="right" src="./image/Tony.jpeg"/>
+## Welcome to Tony's Pages <img align="right" src="./image/Tony.jpeg"/>
 
 ### 通过微信或PayPal赞赏支持Tony
 🚗 注册VPS送100美金🎁 [http://bit.ly/regDigitalOcean](http://bit.ly/regDigitalOcean)
@@ -11,7 +11,7 @@
 
 ❤️你可以通过下面的二维码扫码“微信赞赏码” “PayPal赞赏码”支持我。
 
-如果你决定赞赏，Tony❤️感谢你的善意️支持。
+如果你赞赏我，Tony❤️感谢你的善意️支持。
 [放大赞赏码](./image/tony_weixin_paypal_donate.GIF)
 ![赞赏码](./image/tony_weixin_paypal_donate.GIF)
 
@@ -42,7 +42,7 @@
 
 ☎️如果你想联系我可以通过微信赞赏留言留下你的联系方式，或者用Telegram联系。📞
 
-(./image/Tony.jpeg)如果你决定赞赏，Tony感谢你的💖善意️支持。![](./image/youtube-subscribe.png)
+![](./image/Tony.jpeg) 如果你赞赏我，Tony感谢你的💖善意️支持。![](./image/youtube-subscribe.png)
 
 
 
