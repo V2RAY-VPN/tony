@@ -11,9 +11,12 @@
 
 ❤️你可以通过下面的二维码扫码“微信赞赏码” “PayPal赞赏码”支持我。
 
-如果你决定赞赏，Tony❤️感谢你的善意️支持。如果你想联系我可以通过微信赞赏留言留下你的联系方式，或者用Telegram联系。
+如果你决定赞赏，Tony❤️感谢你的善意️支持。
 [放大赞赏码](./image/tony_weixin_paypal_donate.GIF)
 ![赞赏码](./image/tony_weixin_paypal_donate.GIF)
+
+☎️如果你想联系我可以通过微信赞赏留言留下你的联系方式，或者用Telegram联系。📞
+
 ### 如果您喜欢🧡我的视频，请您【点赞】 并【订阅】我的频道💙
 
 ✅您的订阅就是我的动力^_^ [https://www.youtube.com/c/TonyCN](https://www.youtube.com/c/TonyCN) ![](./image/youtube-32.png)
@@ -36,7 +39,9 @@
 💖你可以通过下面的二维码扫码“微信赞赏码” “PayPal赞赏码”支持我。
 [放大赞赏码](./image/tony_weixin_paypal_donate.GIF)
 ![赞赏码](./image/tony_weixin_paypal_donate.GIF)
-如果你想联系我可以通过微信赞赏留言留下你的联系方式，或者用Telegram联系。
+
+☎️如果你想联系我可以通过微信赞赏留言留下你的联系方式，或者用Telegram联系。📞
+
 如果你决定赞赏，Tony感谢你的💖善意️支持。![](./image/youtube-subscribe.png)
 
 
