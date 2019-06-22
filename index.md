@@ -2,7 +2,7 @@
 
 ☎️联系Tony可以通过WeChat微信 留言 或者 用Telegram电报 发私信消息联系我
 
-📞在Youtube点这里 [https://bit.do/TonyYouTube](https://bit.do/TonyYouTube) 加为好友快速与我聊天✅
+📞在Youtube点这里 [https://bit.do/TonyYoutube](https://bit.do/TonyYoutube) 加为好友快速与我聊天✅
 
 ### 通过微信或PayPal赞赏支持Tony
 🚗 注册VPS送100美金🎁 [http://bit.ly/regDigitalOcean](http://bit.ly/regDigitalOcean)
