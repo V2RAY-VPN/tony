@@ -1,5 +1,9 @@
 ## Welcome to Tony's Pages <img align="right" src="./image/Tony.jpeg"/>
 
+☎️联系Tony可以通过WeChat微信留言 或者 用Telegram电报 发私信消息联系我
+
+📞在Youtube点这里 https://bit.do/TonyYouTube 加为好友快速与我聊天✅
+
 ### 通过微信或PayPal赞赏支持Tony
 🚗 注册VPS送100美金🎁 [http://bit.ly/regDigitalOcean](http://bit.ly/regDigitalOcean)
 
@@ -15,7 +19,7 @@
 [放大赞赏码](./image/tony_weixin_paypal_donate.GIF)
 ![赞赏码](./image/tony_weixin_paypal_donate.GIF)
 
-☎️如果你想联系我可以通过微信赞赏留言留下你的联系方式，或者用Telegram联系。📞
+
 
 ### 如果您喜欢🧡我的视频，请您【点赞】 并【订阅】我的频道💙
 
@@ -31,7 +35,7 @@
 
 🌍欢迎加入我的Telegram电报群：[https://t.me/tony_cn](https://t.me/tony_cn)  人个交流群
 
-✈️[WebTG](https://web.telegram.org)  ✈️[WinTG](https://git.io/Telegram.exe)  ✈️[MacTG](https://git.io/Telegram.zip)  🚀[AndriodTG](https://git.io/Telegram.apk)  🚀[iOSTG](https://itunes.apple.com/app/telegram-messenger/id686449807)🚀
+Telegram下载安装 ✈️[WebTG](https://web.telegram.org)  ✈️[WinTG](https://git.io/Telegram.exe)  ✈️[MacTG](https://git.io/Telegram.zip)  🚀[AndriodTG](https://git.io/Telegram.apk)  🚀[iOSTG](https://itunes.apple.com/app/telegram-messenger/id686449807)🚀
 
 ### 通过微信或PayPal赞赏支持Tony
 
