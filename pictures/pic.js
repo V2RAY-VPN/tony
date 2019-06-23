@@ -97,7 +97,7 @@ var random_images_array = ["1363382418078.png",
 "patreon-2.png",
 "patreon-3.png"
 ];
-path = 'qts/';
+path = 'https://www.tonycn.ml/pictures/qts/';
 var num = Math.floor( Math.random() * random_images_array.length );
 var img = random_images_array[ num ];
 var imgStr = '<img src="' + path + img + '">';
