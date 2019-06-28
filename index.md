@@ -1,6 +1,6 @@
 ## Welcome to Tony's Pages <img align="right" src="./image/Tony.jpeg"/>
 
-☎️联系Tony可以通过WeChat微信 留言 或者 用Telegram电报 发私信消息联系我
+☎️联系Tony可以通过用Telegram电报✅发私信消息联系我，WeChat微信只留言不聊天， 聊天请用✅电报Telegram聊。
 
 📞在Youtube点这里 [https://bit.do/TonyYoutube](https://bit.do/TonyYoutube) 加为好友快速与我聊天✅
 
@@ -45,7 +45,9 @@ Telegram下载安装 ✈️[WebTG](https://web.telegram.org)  ✈️[WinTG](http
 [放大赞赏码](./image/tony_weixin_paypal_donate.GIF)
 ![赞赏码](./image/tony_weixin_paypal_donate.GIF)
 
-☎️如果你想联系我可以通过微信赞赏留言留下你的联系方式，或者用Telegram联系。📞
+☎️联系Tony可以通过用Telegram电报✅发私信消息联系我，WeChat微信只留言不聊天， 聊天请✅用电报Telegram聊。
+
+📞在Youtube点这里 [https://bit.do/TonyYoutube](https://bit.do/TonyYoutube) 加为好友快速与我聊天✅
 
 如果你赞赏我，![](./image/Tony.jpeg) Tony感谢你的💖善意️支持。![](./image/youtube-subscribe.png)
 
