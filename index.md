@@ -16,8 +16,8 @@
 ❤️你可以通过下面的二维码扫码“微信赞赏码” “PayPal赞赏码”支持我。
 
 如果你赞赏我，Tony❤️感谢你的善意️支持。
-[放大赞赏码](./image/tony_weixin_paypal_donate.GIF)
-![赞赏码](./image/tony_weixin_paypal_donate.GIF)
+[放大赞赏码](./image/tony_weixin_paypal_donate.gif)
+![赞赏码](./image/tony_weixin_paypal_donate.gif)
 
 
 
@@ -42,8 +42,8 @@ Telegram下载安装 ✈️[WebTG](https://web.telegram.org)  ✈️[WinTG](http
 💖觉得Tony的内容、视频对你有所帮助，希望支持Tony的频道。
 
 💖你可以通过下面的二维码扫码“微信赞赏码” “PayPal赞赏码”支持我。
-[放大赞赏码](./image/tony_weixin_paypal_donate.GIF)
-![赞赏码](./image/tony_weixin_paypal_donate.GIF)
+[放大赞赏码](./image/tony_weixin_paypal_donate.gif)
+![赞赏码](./image/tony_weixin_paypal_donate.gif)
 
 ☎️联系Tony可以通过用Telegram电报✅发私信消息联系我，WeChat微信只留言不聊天。
 
