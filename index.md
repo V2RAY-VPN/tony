@@ -7,7 +7,7 @@
 ### 通过微信或PayPal赞赏支持Tony
 🚒 注册Vultr VPS送50美金🎁 [https://bit.ly/vultr-VPS](https://bit.ly/vultr-VPS)
 
-🚗 注册DigitalOcean送100美金🎁 [https://bit.ly/regDigitalOcean](https://bit.ly/regDigitalOcean)
+🚗 注册DigitalOcean送100美金🎁 [https://bit.ly/DigitalOcean-VPS](https://bit.ly/DigitalOcean-VPS)
 
 🚕 免费注册VPN送流量✈️ [https://bit.ly/Free-vpn](https://bit.ly/Free-vpn)
 
