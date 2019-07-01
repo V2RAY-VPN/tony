@@ -7,7 +7,7 @@
 ### 通过微信或PayPal赞赏支持Tony
 🚒 注册Vultr VPS送50美金🎁 [https://bit.ly/vultr-VPS](https://bit.ly/vultr-VPS)
 
-🚗 注册DigitalOcean送100美金🎁 [https://bit.ly/DigitalOcean-VPS](https://bit.ly/DigitalOcean-VPS)
+🚗 注册DigitalOcean送50美金🎁 [https://bit.ly/DigitalOcean-VPS](https://bit.ly/DigitalOcean-VPS)
 
 🚕 免费注册VPN送流量✈️ [https://bit.ly/Free-vpn](https://bit.ly/Free-vpn)
 
@@ -60,4 +60,4 @@ Telegram下载安装 ✈️[WebTG](https://web.telegram.org)  ✈️[WinTG](http
 如果你赞赏我，![](./image/Tony.jpeg) Tony感谢你的💖善意️支持。![](./image/youtube-subscribe.png)
 
 
-
+<a href="https://www.vultr.com/?ref=7965370"><img src="https://www.vultr.com/media/banners/banner_728x90.png" width="728" height="90"></a>
