@@ -5,12 +5,17 @@
 📞聊天请用✅电报Telegram聊，点这里 [https://t.me/Tony_TG](https://t.me/Tony_TG) 快速与我聊天✅
 
 ### 通过微信或PayPal赞赏支持Tony
-🚗 注册VPS送100美金🎁 [http://bit.ly/regDigitalOcean](http://bit.ly/regDigitalOcean)
+🚒 注册Vultr VPS送50美金🎁 [https://bit.ly/vultr-VPS](https://bit.ly/vultr-VPS)
 
-🚕 免费注册VPN送流量✈️ [http://bit.ly/Free-vpn](http://bit.ly/Free-vpn)
+🚗 注册DigitalOcean送100美金🎁 [https://bit.ly/regDigitalOcean](https://bit.ly/regDigitalOcean)
 
-🚙 VPN永久免费套餐注册🚀 [http://bit.ly/ZOOGVPN](http://bit.ly/ZOOGVPN)
+🚕 免费注册VPN送流量✈️ [https://bit.ly/Free-vpn](https://bit.ly/Free-vpn)
 
+🚙 VPN永久免费套餐注册🚀 [https://bit.ly/ZOOGVPN](https://bit.ly/ZOOGVPN)
+
+ 🌹 注册麦殻送流量[https://bit.ly/maiker](https://bit.ly/maiker)
+
+✅✅✅✅✅✅✅✅✅✅✅✅✅✅✅✅✅✅✅✅
 ❤️觉得Tony的内容、视频对你有所帮助，希望支持Tony的频道。
 
 ❤️你可以通过下面的二维码扫码“微信赞赏码” “PayPal赞赏码”支持我。
