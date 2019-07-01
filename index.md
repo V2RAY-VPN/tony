@@ -16,6 +16,7 @@
  🌹 注册麦殻送流量[https://bit.ly/maiker](https://bit.ly/maiker)
 
 ✅✅✅✅✅✅✅✅✅✅✅✅✅✅✅✅✅✅✅✅
+
 ❤️觉得Tony的内容、视频对你有所帮助，希望支持Tony的频道。
 
 ❤️你可以通过下面的二维码扫码“微信赞赏码” “PayPal赞赏码”支持我。
@@ -45,6 +46,8 @@ Telegram下载安装 ✈️[WebTG](https://web.telegram.org)  ✈️[WinTG](http
 ### 通过微信或PayPal赞赏支持Tony
 
 💖觉得Tony的内容、视频对你有所帮助，希望支持Tony的频道。
+
+✅✅✅✅✅✅✅✅✅✅✅✅✅✅✅✅✅✅✅✅
 
 💖你可以通过下面的二维码扫码“微信赞赏码” “PayPal赞赏码”支持我。
 [放大赞赏码](./image/tony_weixin_paypal_donate.gif)
