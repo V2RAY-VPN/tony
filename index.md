@@ -35,7 +35,7 @@
 
 ![](./image/youtube-subscribe.png) 发布新视频时，它会把最新的内容第一时间推送给你。
 
-<a href="https://zoogvpn.com/sign-up?ref=ttywxu" title="Free Zoog VPN Service" target="_blank"><img border="0" src="https://zoogvpn.com/images/affiliates/728x90.png" alt="Access blocked websites" width="160" height="600"/></a>
+<a href="https://zoogvpn.com/sign-up?ref=ttywxu" title="Free Zoog VPN Service"  target="_blank"><img border="0" src="https://zoogvpn.com/images/affiliates/125x125.png" alt="Access blocked websites" width="125" height="125"/></a>
 
 ## 你可以点下同的链接 加入Telegram群与大家交流:
 
