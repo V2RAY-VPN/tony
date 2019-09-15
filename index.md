@@ -69,4 +69,4 @@ Telegram下载安装 ✈️[WebTG](https://web.telegram.org)  ✈️[WinTG](http
 
 <a href="https://billing.ivacy.com/page/90680/a81ca6bb" target="_top"><img src="http://ivacy.postaffiliatepro.com/accounts/default1/vdegzkxbw/a81ca6bb.png" alt="" title="" width="468" height="60" /></a><img style="border:0" src="http://ivacy.postaffiliatepro.com/scripts/vdegzkxiw?aff=90680&amp;a_bid=a81ca6bb" width="1" height="1" alt="" />
 
-
+<a href="https://billing.ivacy.com/page/90680/f8a8a7e2" target="_top"><img src="https://ivacy.postaffiliatepro.com/accounts/default1/vdegzkxbw/f8a8a7e2.png" alt="" title="" width="728" height="90" /></a><img style="border:0" src="http://ivacy.postaffiliatepro.com/scripts/vdegzkxiw?aff=90680&amp;a_bid=f8a8a7e2" width="1" height="1" alt="" />
