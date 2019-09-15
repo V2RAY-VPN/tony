@@ -36,9 +36,7 @@
 
 ![](./image/youtube-subscribe.png) 发布新视频时，它会把最新的内容第一时间推送给你。
 
-<a href="https://billing.ivacy.com/page/90680/45159cde" target="_top"><img src="https://ivacy.postaffiliatepro.com/accounts/default1/vdegzkxbw/45159cde.png" alt="" title="" width="300" height="250" /></a><img style="border:0" src="http://ivacy.postaffiliatepro.com/scripts/vdegzkxiw?aff=90680&amp;a_bid=45159cde" width="1" height="1" alt="" />
-
-<a href="https://zoogvpn.com/sign-up?ref=ttywxu" title="Free Zoog VPN Service"  target="_blank"><img border="0" src="https://zoogvpn.com/images/affiliates/125x125.png" alt="Access blocked websites" width="125" height="125"/></a>
+<a href="https://billing.ivacy.com/page/90680/45159cde" target="_top"><img src="https://ivacy.postaffiliatepro.com/accounts/default1/vdegzkxbw/45159cde.png" alt="" title="" width="300" height="250" /></a><img style="border:0" src="http://ivacy.postaffiliatepro.com/scripts/vdegzkxiw?aff=90680&amp;a_bid=45159cde" width="1" height="1" alt="" />&nbsp;<a href="https://zoogvpn.com/sign-up?ref=ttywxu" title="Free Zoog VPN Service"  target="_blank"><img border="0" src="https://zoogvpn.com/images/affiliates/125x125.png" alt="Access blocked websites" width="250" height="250"/></a>
 
 ## 你可以点下同的链接 加入Telegram群与大家交流:
 
