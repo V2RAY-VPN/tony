@@ -1,5 +1,6 @@
 ## Welcome to Tony's Pages <img align="right" src="./image/Tony.jpeg"/>
 <a href="https://www.vultr.com/?ref=7965370" target="_blank"><img src="https://www.vultr.com/media/banners/banner_728x90.png" width="728" height="90"></a>
+
 ☎️联系Tony可以通过用Telegram电报✅发私信消息联系我，WeChat微信只留言不聊天。
 
 📞聊天请用✅电报Telegram聊，点这里 [https://t.me/Tony_TG](https://t.me/Tony_TG) 快速与我聊天✅
@@ -35,12 +36,9 @@
 
 ![](./image/youtube-subscribe.png) 发布新视频时，它会把最新的内容第一时间推送给你。
 
-<a href="https://zoogvpn.com/sign-up?ref=ttywxu" title="Free Zoog VPN Service"  target="_blank"><img border="0" src="https://zoogvpn.com/images/affiliates/125x125.png" alt="Access blocked websites" width="125" height="125"/></a>
-
 <a href="https://billing.ivacy.com/page/90680/45159cde" target="_top"><img src="https://ivacy.postaffiliatepro.com/accounts/default1/vdegzkxbw/45159cde.png" alt="" title="" width="300" height="250" /></a><img style="border:0" src="http://ivacy.postaffiliatepro.com/scripts/vdegzkxiw?aff=90680&amp;a_bid=45159cde" width="1" height="1" alt="" />
 
-<a href="https://billing.ivacy.com/page/90680/b092b794" target="_top"><img src="http://ivacy.postaffiliatepro.com/accounts/default1/vdegzkxbw/b092b794.png" alt="" title="" width="300" height="250" /></a><img style="border:0" src="http://ivacy.postaffiliatepro.com/scripts/vdegzkxiw?aff=90680&amp;a_bid=b092b794" width="1" height="1" alt="" />
-
+<a href="https://zoogvpn.com/sign-up?ref=ttywxu" title="Free Zoog VPN Service"  target="_blank"><img border="0" src="https://zoogvpn.com/images/affiliates/125x125.png" alt="Access blocked websites" width="125" height="125"/></a>
 
 ## 你可以点下同的链接 加入Telegram群与大家交流:
 
