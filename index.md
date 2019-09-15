@@ -37,7 +37,7 @@
 
 <a href="https://zoogvpn.com/sign-up?ref=ttywxu" title="Free Zoog VPN Service"  target="_blank"><img border="0" src="https://zoogvpn.com/images/affiliates/125x125.png" alt="Access blocked websites" width="125" height="125"/></a>
 
-<a href="https://billing.ivacy.com/page/90680/b092b794" target="_top"><img src="//ivacy.postaffiliatepro.com/accounts/default1/vdegzkxbw/b092b794.png" alt="" title="" width="300" height="250" /></a><img style="border:0" src="http://ivacy.postaffiliatepro.com/scripts/vdegzkxiw?aff=90680&amp;a_bid=b092b794" width="1" height="1" alt="" />
+<a href="https://billing.ivacy.com/page/90680/b092b794" target="_top"><img src="http://ivacy.postaffiliatepro.com/accounts/default1/vdegzkxbw/b092b794.png" alt="" title="" width="300" height="250" /></a><img style="border:0" src="http://ivacy.postaffiliatepro.com/scripts/vdegzkxiw?aff=90680&amp;a_bid=b092b794" width="1" height="1" alt="" />
 
 
 ## 你可以点下同的链接 加入Telegram群与大家交流:
@@ -67,6 +67,6 @@ Telegram下载安装 ✈️[WebTG](https://web.telegram.org)  ✈️[WinTG](http
 
 <a href="https://www.vultr.com/?ref=7965370" target="_blank"><img src="https://www.vultr.com/media/banners/banner_728x90.png" width="728" height="90"></a>
 
-<a href="https://billing.ivacy.com/page/90680/a81ca6bb" target="_top"><img src="//ivacy.postaffiliatepro.com/accounts/default1/vdegzkxbw/a81ca6bb.png" alt="" title="" width="468" height="60" /></a><img style="border:0" src="http://ivacy.postaffiliatepro.com/scripts/vdegzkxiw?aff=90680&amp;a_bid=a81ca6bb" width="1" height="1" alt="" />
+<a href="https://billing.ivacy.com/page/90680/a81ca6bb" target="_top"><img src="http://ivacy.postaffiliatepro.com/accounts/default1/vdegzkxbw/a81ca6bb.png" alt="" title="" width="468" height="60" /></a><img style="border:0" src="http://ivacy.postaffiliatepro.com/scripts/vdegzkxiw?aff=90680&amp;a_bid=a81ca6bb" width="1" height="1" alt="" />
 
 
