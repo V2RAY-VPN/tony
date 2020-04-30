@@ -15,6 +15,12 @@
 🚙 VPN永久免费套餐注册🚀 [https://bit.ly/ZOOGVPN](https://bit.ly/ZOOGVPN)
 
  🌹 注册麦殻送流量[https://bit.ly/maiker](https://bit.ly/maiker)
+ 
+ ✅福利来了免费域名注册.me .life .works .business .expert .social .guru .rocks域名
+ 😀供您自建网站、域名解析、域名绑定、V2ray Trojan#科学上网 https://youtu.be/4BVoYSkc0Yw
+ 
+ 😀免费域名注册 链接 https://bit.ly/DYNADOT
+    http://www.dynadot.com?s8U8I6Q7p8Q9M9O64
 
 ✅✅✅✅✅✅✅✅✅✅✅✅✅✅✅✅✅✅✅✅
 
