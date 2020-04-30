@@ -1,4 +1,5 @@
 ## Welcome to Tony's Pages <img align="right" src="./image/Tony.jpeg"/>
+✅全新#开箱 Linksys WRT1900ACS 无线路由器，升级到最新定制的OpenWRT系统固件，SS SSR Trojan V2ray助力加速#科学上网 Frp NPS内网穿透 https://youtu.be/-HYN9BximEc
 <a href="https://www.vultr.com/?ref=7965370" target="_blank"><img src="https://www.vultr.com/media/banners/banner_728x90.png" width="728" height="90"></a>
 
 ☎️联系Tony可以通过用Telegram电报✅发私信消息联系我，WeChat微信只留言不聊天。
